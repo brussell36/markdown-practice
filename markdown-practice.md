@@ -13,6 +13,8 @@ We spent time in a few different countries while in Europe this time around.
 
 A friend of ours lives in Utrect just outside of Amsterdam and they were kind enough to let us stay with them for several days before we traveled to Italy. I think they enjoyed showing us all their favorite places for food and drinks.
 
+![Skyline of Florence Italy](https://2rws6i2ak9i045wvup1ldt81-wpengine.netdna-ssl.com/wp-content/uploads/2017/04/florence-as-an-innovation-hub.jpg)
+
 Florence, Italy is probably one of the most amazingly beautiful places I have ever experienced. The architecture and the art everwhere was absolutely stunning. Around every corner was something new to experience. We only had 4 days here, but it made a lasting impression and I will definitely want to visit Italy again to see more of what it has to offer.
 
 Next we flew into Zagreb, Croatia for the last leg of our trip, but also the longest part.
